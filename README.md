@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Balls Biccha Reddy
+- 👋 Hi, I’m @Balls Bicha Reddy
 - 👀 I’m interested in Blockchain development
 - 🌱 I’m currently learning Many things
 - 💞️ I’m looking to collaborate on Nothing at the moment. but if you have any experience in blockchain my discord is below for you to contact me.
